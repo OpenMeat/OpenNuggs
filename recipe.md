@@ -2,7 +2,7 @@
 ***Recipe is from [Sauce Stache's Plant-based ChickUN McNuggets recipe](https://www.saucestache.com/mcdonalds-plant-based-chickun-mcnuggets-recipe/)***
 
 ## Ingredients
-### For Chickun
+### For ChickAIN'T
     
    - 1/2 Cup Water
    - 1/2 Cup TVP
@@ -38,7 +38,7 @@ Directions
 2. Add seasonings, stir and allow to simmer for 5 minutes
 3. Remove from heat, cover and place in refrigerator for 30 minutes
 4. after 30 minutes remove from refrigerator and place in large bowl or stand mixer.
-5. add the remaining chickun ingredients and mix very well
+5. add the remaining chickAIN'T ingredients and mix very well
 6. remove from mixer and shape into nugget shape
 7. place in freezer to firm up
 8. remove from freezer
